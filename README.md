@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kbsenangelo
+- 👋 Hi, I’m Kristiana Bianca Senangelo
 - 👀 I’m interested in writing, drawing, designing, organizing
 - 🌱 I’m currently learning how to make prototypes
 - 📫 How to reach me on LinkedIn: https://www.linkedin.com/in/kristiana-bianca-senangelo-854924152/
