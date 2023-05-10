@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kristiana Bianca Senangelo👀 I’m interested in writing, drawing, designing, organizing
+- 👀 I’m interested in writing, drawing, designing, organizing
 - 🌱 I’m currently learning how to make prototypes
 
 <!---
